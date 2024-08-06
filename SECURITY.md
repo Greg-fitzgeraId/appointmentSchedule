@@ -1,0 +1,1 @@
+hi 兄弟你好，我在apple的developer看到了你的留言，就想着来github上碰碰运气，想咨询您几个关于crypto app上架的问题可以吗？这是我的tg账号 @bbbbbbruce 如果能得到您的指点将非常感激。
